@@ -20,5 +20,5 @@ I am a first-year *Electronics and Communication Engineering (ECE)* student at *
 
 ### 🤝 Connect with Me
 * 💼 LinkedIn: [Bhavishya Saini on LinkedIn](https://www.linkedin.com/in/bhavishya-saini-309026412?utm_source=share_via&utm_content=profile&utm_medium=member_android)
-* 📧 Email: [dheerajkumar74456@gmail.com](mailto:bhavishyasaini06102008@gmail.com)
+* 📧 Email: [bhavishyasaini06102008@gmail.com](mailto:bhavishyasaini06102008@gmail.com)
 *
